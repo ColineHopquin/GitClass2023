@@ -1,40 +1,18 @@
-# Pink Floyd - The Wall
-## Claudio Satriano
-### From [https://en.wikipedia.org/wiki/The_Wall](https://en.wikipedia.org/wiki/The_Wall)
+Aretha Franklin Young, Gifted and Black Review
+Album. Released 1972.
 
-The Wall is the eleventh studio album by English rock band Pink Floyd, released
-in 1979 through Harvest and Columbia Records. Conceived during the In The Flesh
-tour, recording spanned nearly a year, from December 1978 to November 1979, and
-took place in France, England, New York, and Los Angeles. It was produced by Bob
-Erzin, who helped to refine the concept and bridge tensions during recording.
-Some of the outtakes from the recording sessions were used on the band's next
-album, The Final Cut (1983).
+(https://www.bbc.co.uk/music/reviews/p6vh/)
 
-![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
+BBC Review
+One of the Queen of Soul’s very best.
 
-A rock opera and a concept record, its story explores Pink, a jaded rockstar
-that bassist Roger Waters modeled after himself and band founder Syd Barrett.
-Pink's life begins with the loss of his father during the Second World War and
-continues with abuse from his schoolteachers, an overprotective mother, and the
-breakdown of his marriage; all contribute to his eventual self-imposed isolation
-from society, symbolised by a wall. The band, who were then struggling with
-personal and financial difficulties, supported the idea. The Wall is the last
-album to feature Pink Floyd as a quartet; keyboardist Richard Wright was fired
-by Waters during production, but stayed on as a salaried musician. The record
-was promoted with three singles: "Another Brick in the Wall, Part 2", "Run Like
-Hell", and "Comfortably Numb", the first of which became the band's only number
-one single in the US. From 1980 to 1981, the group embarked on The Wall Tour,
-which was notable for its elaborate theatrical effects. The concept was later
-adapted into a feature film of the same name, directed by Alan Parker and
-released in 1982.
+Daryl Easlea 2010
+Young, Gifted and Black is a remarkable album, finding Aretha Franklin at the peak of her powers. It appeared chronologically between her two groundbreaking live records – Live at Fillmore West, which celebrated her acceptance by the rock audience, and Amazing Grace, which placed her at the heart of her gospel roots. On Young, Gifted and Black she acts as a conduit for all her influences, and produces a mesmeric, frequently rapturous work.
 
-The Wall received mixed reviews from critics upon its release, many of whom
-found its contents to be overblown and pretentious. Retrospectively, it is
-considered one of the greatest albums of all time, and is one of the most
-well-known concept albums. The record was a commercial success, reaching number
-one in the US (where it stayed for 15 weeks), and number three in the UK. As of
-2018, the album has sold over 24 million copies, the second best-selling in the
-band's catalog, as well as one of the best-selling of all time.
+Recorded in late 1970 and early 71, Franklin worked again with producers Jerry Wexler, Arif Mardin and Tom Dowd. They corralled the cream of Atlantic’s session men, as well as Donny Hathaway, Billy Preston and Dr John at the label’s New York studio and Criteria Studios in Florida.
 
-> I think things like 'Comfortably Numb' were the last embers of mine and
-> Roger's ability to work collaboratively together. David Gilmour
+Unlike some of her previous albums, Young, Gifted and Black stands as a complete work and her own compositions rank among her best. Day Dreaming is beautiful. The vocal arrangement on its run out, where she joined by her sisters Erma and Carolyn and the Sweethearts of Soul, is little short of breathtaking. Rock Steady is one of her most propulsive grooves, still at home on any dancefloor today. Taking the nursery rhyme Humpty Dumpty and making it a lovelorn ballad is masterful.
+
+In Franklin’s choice of covers, she acknowledges the shift to smooth soul in the early 70s by covering The Delfonics’ Didn’t I (Blow Your Mind This Time). She remodels Nina Simone’s Young, Gifted and Black as a gospel anthem. It is arguably its most potent recorded version. Franklin takes the then-recent Beatles hit, The Long and Winding Road, and locates it somewhere between Spanish Harlem and Son of a Preacher Man. She was also one of the first artists to cover an Elton John song with her touching version of Border Song (Holy Moses), which closes the album.
+
+Aretha is caught in mirrored reflection on the cover. Her four faces could symbolise the musical strands on this album – political, gospel, rock and soul. Although there are those that will always argue that the best long-form Aretha Franklin recording is a hits compilation, Young, Gifted and Black exudes superiority, confidence and class. There is little doubt on this album that ’Ree is Queen Bee.
