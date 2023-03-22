@@ -1,12 +1,15 @@
-Aretha Franklin Young, Gifted and Black Review
-Album. Released 1972.
+# <span style="color:gray"> Aretha Franklin Young, Gifted and Black Review <span style="color:gray">
+__Album. Released 1972.__
 
-(https://www.bbc.co.uk/music/reviews/p6vh/)
+[BBCReviewLink](https://www.bbc.co.uk/music/reviews/p6vh/)
 
-BBC Review
-One of the Queen of Soul’s very best.
 
-Daryl Easlea 2010
+## <span style="font-size:20pt"> One of the Queen of Soul’s very best. </span>
+
+*<span style="font-size:10pt;"> Daryl Easlea 2010, BBC Review </span>*
+
+![height:8cm Aretha in 1968](https://upload.wikimedia.org/wikipedia/commons/c/c6/Aretha_Franklin_1968.jpg)
+
 Young, Gifted and Black is a remarkable album, finding Aretha Franklin at the peak of her powers. It appeared chronologically between her two groundbreaking live records – Live at Fillmore West, which celebrated her acceptance by the rock audience, and Amazing Grace, which placed her at the heart of her gospel roots. On Young, Gifted and Black she acts as a conduit for all her influences, and produces a mesmeric, frequently rapturous work.
 
 Recorded in late 1970 and early 71, Franklin worked again with producers Jerry Wexler, Arif Mardin and Tom Dowd. They corralled the cream of Atlantic’s session men, as well as Donny Hathaway, Billy Preston and Dr John at the label’s New York studio and Criteria Studios in Florida.
