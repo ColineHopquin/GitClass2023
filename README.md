@@ -7,3 +7,5 @@ Given by Claudio Satriano
 ![](https://upload.wikimedia.org/wikipedia/commons/c/c6/Aretha_Franklin_1968.jpg)
 
 Local edit 
+
+New online comment 
